@@ -1,0 +1,2 @@
+# solution
+Durga technical 
